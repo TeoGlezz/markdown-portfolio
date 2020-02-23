@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+#### Mis libros favoritos
+
+- Juego de tronos 
+- abzurdah
+- un paseo para recorda
