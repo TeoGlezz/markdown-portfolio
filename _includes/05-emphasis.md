@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Me gusta _Pasear con_ mis **sobrinos** **, y mis padres** Me gusta el aire fresco del **campo**   
